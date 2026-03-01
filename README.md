@@ -1,2 +1,2 @@
 # -kMhvomLD
-硅基流动邀请码互助：kMhvomLD
+硅基流动邀请码：kMhvomLD
